@@ -1,0 +1,23 @@
+- current goals
+    - 30 lbs mt si 2 hours ascent
+        - wac conditioning
+    - base heart rate reduction
+    - bf% reduction, re-unlock basic calistenics
+    - basic running
+
+- training current prio
+    - tier one
+        - hiking with weight
+        - orange theory fitness
+        - soccer & volleyball (social or pracice soccer / bball at cal an)
+    - tier two
+        - calistenics
+        - biking
+        - swimming
+    - tier three
+        - trail running
+        - street running
+
+- challenges
+    - royal marines joining reqs
+    - hybrid calistenics
