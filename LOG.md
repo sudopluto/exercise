@@ -1,0 +1,26 @@
+- notes from otf and hiking:
+    - weak spots
+        - rowing
+            - core
+            - biceps / elbows
+        - hiking
+            - calves
+            - quads
+            - hip flexibility
+        - weights
+            - upper body
+        - general
+            - cardio capacity
+            - needing to catch breath
+    - recovery
+        - sleep is harder -> generic tydenol?
+        - add in foam rolling?
+        - add in flexiblity / squat / hip loosening?
+
+- improvements
+    - break in & wear winter boots
+    - gaiters
+    - face covering for cold winds
+    - 2L water minimum please
+    - chest pocket for hands
+    - improve layering for winter
